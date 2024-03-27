@@ -1,2 +1,11 @@
-# guh
-PONYTOWN INTRO :3
+# PONYTOWN INTRO :3
+
+(short and simple bc i dont know how to work this goddamn site)
+
+- she/he + other pronouns
+- multi-sourced headmate so you may see alot of ponies of mine say [ SYS ] on them
+- silly guy! just may be a little bit skitterish at times
+- feel free to boop me, kiss me, whatever! just don't dryhump me please
+- autistic/adhd/etc so i get very dumb at times
+- if afk please whisp to me so i can get ur message! ^_^
+- will probably not accept ur friend request if we barely talked to eachother on pt
