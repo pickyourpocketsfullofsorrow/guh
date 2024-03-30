@@ -9,3 +9,4 @@
 - autistic/adhd/etc so i get very dumb at times
 - if afk please whisp to me so i can get ur message!
 - will probably not accept ur friend request if we barely talked to eachother on pt
+- mostly at spawn w/ friends
