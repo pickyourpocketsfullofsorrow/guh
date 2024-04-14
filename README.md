@@ -10,3 +10,4 @@
 - if afk please whisp to me so i can get ur message!
 - will probably not accept ur friend request if we barely talked to eachother on pt
 - mostly at spawn w/ friends
+- ask if you're gonna take inspo from my ponies! no heavy inspo or copying unless i gave you the thumbs up
