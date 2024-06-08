@@ -2,12 +2,12 @@
 
 (short and simple bc i dont know how to work this goddamn site)
 
-- she/he + other pronouns
-- multi-sourced headmate so you may see alot of ponies of mine that say [ SYS ] on them, all are me and saying i'm not them is does nothing to me!
-- i have SUPER bad anxiety and moodswings sometimes so always just int with care w/ me
-- feel free to boop me, kiss me, whatever!
-- autistic/adhd/etc so i get very dumb at times
+- he/she + ask
+- sys host + holder, i'm the only one who plays ponytown (as of right now)
+- in a open relationship, so do not flirt with me please
+- autistic + adhd, also very dumb sometimes
+----
 - if afk please whisp to me so i can get ur message!
-- will probably not accept ur friend request if we barely talked to eachother on pt
-- mostly at spawn w/ friends
+- feel free to boop me, kiss me, whatever! just know i may not like it sometimes
 - ask if you're gonna take inspo from my ponies! no heavy inspo or copying unless i gave you the thumbs up
+- will probably not accept ur friend request if we barely talked to eachother on pt or if we dont share much in common
