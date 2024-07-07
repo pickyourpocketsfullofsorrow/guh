@@ -4,8 +4,8 @@
 
 - he/she + ask
 - sys host + holder, i'm the only one who plays ponytown (as of right now)
-- in a open relationship, so do not flirt with me please
-- autistic + adhd, also very dumb sometimes
+- in a open relationship but taken, so do not flirt with me please
+- autistic + adhd, also very dumb
 ----
 - if afk please whisp to me so i can get ur message!
 - feel free to boop me, kiss me, whatever! just know i may not like it sometimes as i get occasional touch discomfort (if not well known)
