@@ -8,6 +8,6 @@
 - autistic + adhd, also very dumb sometimes
 ----
 - if afk please whisp to me so i can get ur message!
-- feel free to boop me, kiss me, whatever! just know i may not like it sometimes
+- feel free to boop me, kiss me, whatever! just know i may not like it sometimes as i get occasional touch discomfort (if not well known)
 - ask if you're gonna take inspo from my ponies! no heavy inspo or copying unless i gave you the thumbs up
-- will probably not accept ur friend request if we barely talked to eachother on pt or if we dont share much in common
+- will probably not accept ur friend request if we barely talked to eachother on pt and or if we dont share much in common
